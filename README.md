@@ -1,0 +1,1 @@
+# Shopnik_taro
